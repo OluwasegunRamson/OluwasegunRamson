@@ -4,7 +4,6 @@
 - 🌱 I’m currently learning Data Analysis in the NG30 days of learning 
 - 👯 I’m looking to collaborate on everything data analysis and projects
 - 🤔 I’m looking for help with breaking down technical concepts 
-- 💬 Ask me about journey so far in the world of Data
 - 📫 How to reach me: http://twitter.com/just_rhymey
 - 😄 Pronouns: (He/Him)
 - ⚡ Fun fact: I love music and I'm an outsider
