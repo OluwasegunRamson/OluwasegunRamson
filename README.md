@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on everything data analysis and projects
 - 📫 How to reach me: http://twitter.com/just_rhymey
 - 😄 Pronouns: (He/Him)
-- ⚡ Fun fact: I love music and I'm an outsider
+- ⚡ Fun fact: I love music
 
